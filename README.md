@@ -1,3 +1,4 @@
+![cat](https://user-images.githubusercontent.com/114946987/215864000-4234e6c5-c9a6-40ab-820a-1aac635c7bd3.png)
 ### Hi there 👋
 
 <!--
